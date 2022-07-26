@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MrPancake1124-2021
+- 👀 I’m interested in coding calculators.
+- 🌱 I’m currently learning how to code calculators in 100 different languages.
+- 💞️ I’m looking to collaborate on nothing... im making calculators.
+- 📫 How to reach me you can't, for now... maybe in the future.
